@@ -1,7 +1,4 @@
-### Hi there 👋
-
-
-Here are some ideas to get you started:
+### Hello my name is Gabriel 👋
 
 ### 🎯 I am developer Php
 
