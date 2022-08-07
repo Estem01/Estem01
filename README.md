@@ -4,4 +4,4 @@
 
 ### 💎 Owner of RedeNight
 
-### 🛡️ Onwer of Pmmp Community
+### 🛡️ Owner of Pmmp Community
