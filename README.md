@@ -1,9 +1,5 @@
 ### I am Estem0 👀
 
-
-### 💎 Owner of RedeNight
-https://discord.gg/hwtx9bccWX
-
 ### 🛡️ Founder of Pmmp Community
 https://discord.gg/pyHvRwkJC2
 
