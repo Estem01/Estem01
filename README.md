@@ -1,4 +1,4 @@
-### I am Estem0 👀
+### I am Estem0
 
 ### 🛡️ Founder of Pmmp Community
 https://discord.gg/pyHvRwkJC2
